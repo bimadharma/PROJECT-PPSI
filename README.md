@@ -1,2 +1,2 @@
 # PROJECT-PPSI
-https://kost-luqman.infinityfreeapp.com/
+https://kost-luqman.infinityfreeapp.com
